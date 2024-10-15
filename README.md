@@ -1,2 +1,2 @@
-# casinotop5.jp New Theme
+# Eduquest New Theme
 
